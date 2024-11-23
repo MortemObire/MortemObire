@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MortemObire
+- 👀 I’m interested in prgramming and helping others!
+- 🌱 I’m currently learning Java, although i am not very good with the language.
+- 📫 How to reach me:
+- Instagram:v.zlatinov
